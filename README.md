@@ -1,2 +1,0 @@
-# Nnaekezie_Jesse_Ifechukwukaasom_301901563
-MIT8103 Advanced Database System CA Portfolio
